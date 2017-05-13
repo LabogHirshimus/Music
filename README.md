@@ -1,2 +1,3 @@
 # Music
-From music comes creation
+From music comes Creation
+Froc Creation comes the Light
